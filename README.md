@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @AldoSGNL
-- 🌱 I’m currently learning and onboarding...
 - 📫 How to reach me ... (512) 676-9529 or aldo@sgnl.ai
 
 <!---
